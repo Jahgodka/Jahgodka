@@ -1,7 +1,9 @@
 ### Heya ><
 
 CS Student @ UŁ 💻
+<br>
 Cool dude (ig) 😎
+<br>
 Gymbro 🏋️‍♂️
 
 <div align="center">
